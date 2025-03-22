@@ -1,7 +1,3 @@
-It sounds like you’re looking for a job listing or outreach message for finding pandits skilled in the Vikṛti category chanting styles. Here's a polished draft based on your request:
-
----
-
 **Help Wanted: Expert Vedic Chanting Practitioners**
 
 We are seeking skilled and experienced Vedic pandits to assist in the preservation and transmission of the Vedas through traditional chanting techniques. Specifically, we require recordings of the **Vikṛti category chanting styles** to support a cultural preservation initiative. The styles include: 
