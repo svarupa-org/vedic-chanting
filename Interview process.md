@@ -9,7 +9,3 @@
    - Conformance to **Chhandah** (metrical structure), such as Gayatri, Anuṣṭup, etc.
 
 4. **Engagement and Negotiation**: Upon successful completion of the aforementioned validations, discussions will be conducted with the individual to finalize terms. Preference will be given to an hourly rate for audio recordings, though alternative arrangements, such as per specific Vedic chapter, may also be considered.
-
----
-
-Let me know if you'd like further refinements or additional adjustments!
